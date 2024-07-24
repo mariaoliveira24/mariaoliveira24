@@ -4,7 +4,7 @@
 - 💞️ Para aprender mais sobre programação.
 - 📫 PR.
 - 😄 Ela.
-- ⚡ Fã de Sobrenatural.
+- ⚡ Fã de The Vampires Diaries.
 
 <!---
 mariaoliveira24/mariaoliveira24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
