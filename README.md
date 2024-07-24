@@ -1,7 +1,7 @@
 - 👋  Hi, I’m @mariaoliveira24
 - 👀Em aprender mais a programar.
 - 🌱 Estamos aprendendo mais como programar.
-- 💞️ Para aprender mais sobre progrmação.
+- 💞️ Para aprender mais sobre programação.
 - 📫 PR.
 - 😄 Ela.
 - ⚡ Fã de The Vampires Diaries.
